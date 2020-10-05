@@ -4,3 +4,7 @@ where is all the stuf i wrote
 wat 
 just
 hapned
+cool
+ool
+ol
+l
